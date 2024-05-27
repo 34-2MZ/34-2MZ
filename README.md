@@ -1,6 +1,6 @@
-### *bem vinda ao meu perfil ☮*
+### *eai sabotage*
 
-*sou aluna do 2mz e gosto de comer pernil
+*o tata é foda*
 
 ![](https://media.tenor.com/vBhraFQlxfAAAAAM/wink-black.gif) 
 ![](https://media.tenor.com/pv8XMHa1iioAAAAM/dance-wiggle.gif)
